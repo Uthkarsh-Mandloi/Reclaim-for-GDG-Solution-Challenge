@@ -2,7 +2,7 @@
 
 **Reclaim** is an innovative project designed to tackle the global waste crisis through advanced technology and community-driven solutions. By utilizing **Gemine IDX** and **Google technologies**, Reclaim transforms waste into valuable resources — paving the way for a more sustainable and circular future.
 
-Watch Explanation Here:-
+Watch Explanation Here:- https://youtu.be/BspWFMgbHJ4
 
 ---
 
